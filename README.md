@@ -1,1 +1,1 @@
-# task1-E
+brushless motors circuit white code
